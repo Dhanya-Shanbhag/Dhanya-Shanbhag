@@ -32,8 +32,7 @@
 ---
 
 ### 🌟 **Projects**
-📌 *Check out my latest work in my [GitHub repositories](https://github.com/dhanyashanbhag?tab=repositories)!*  
-
+📌 *Check out my latest work in my [GitHub repositories](https://github.com/Dhanya-Shanbhag?tab=repositories)!*  
 ---
 
 ### 📫 **Connect With Me**
